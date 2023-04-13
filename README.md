@@ -1,18 +1,3 @@
 # -we-
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-https://atasilov.github.io/my-profile/index.html
+https://tasilowwets.github.io/-we-/index.html
