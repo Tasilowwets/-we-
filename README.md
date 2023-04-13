@@ -1,3 +1,4 @@
 # -we-
 
-https://tasilowwets.github.io/-we-/index.html
+https://.github.io/my-profile/index.html
+
