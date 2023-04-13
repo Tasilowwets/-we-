@@ -1,3 +1,3 @@
 # -we-
 
-https://tasilowwets.github.io/\we//index.html
+https://tasilowwets.github.io/-we-/index.html
